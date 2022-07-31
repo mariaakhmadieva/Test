@@ -3,4 +3,4 @@
 Time to work!
 
 
-Patry time!
+Party time!
